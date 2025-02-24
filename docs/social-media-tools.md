@@ -1,4 +1,4 @@
-***
+https://telgroplinks.com/category/blog/***
 ***
 **[◄◄ Back to Wiki Index](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/tools-index)**
 ***
